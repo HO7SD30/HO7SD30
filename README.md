@@ -1,1 +1,1 @@
-- 👋 Ola Sou o @HO7SD30, recentemente achei essa velha conta e resolvi voltar a trabalhar com ela.Estou no ramo da progamação desde 2019,
+- 👋 Ola Sou o @HO7SD30, recentemente achei essa velha conta e resolvi voltar a trabalhar com ela. Estou no ramo da progamação desde 2019,
