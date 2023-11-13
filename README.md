@@ -1,6 +1,6 @@
    <p align="center">
       <samp>
-         <em>:pensive:</em>:pensive:
+         :pensive:
       </samp><br>
    </p>
    <p align="center">
