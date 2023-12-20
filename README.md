@@ -8,7 +8,7 @@
         &#8226;
         <a href="https://github.com/HO7SD30" target="_blank">null</a>
         &#8226;
-         <a href="https://www.google.com/search?q=ho7sd3" target="_blank">Discord</a>
+         <a href="https://www.google.com/search?q=ho7sd30" target="_blank">Discord</a>
         &#8226;
          <a href="https://github.com/HO7SD30/" target="_blank">null</a>
         &#8226;
